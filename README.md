@@ -1,0 +1,7 @@
+
+# Blog post 1
+
+I came across Aquaphoneia at an art exhibit over break; it drew my eye because the very set up of the installation is odd. A huge, brass horn is placed in the middle of three archetypal scientific machines: with tubes twisting around, bubbles erupting inside and air fuming out. According to the artists, It is an alchemic installation centered around the "poiesis of time" and the "transmutation of voice in matter". The horn records whatever is said into it, and then the recording is converted into sound energy to impress pressure patterns onto the water, and those onto air. The recording travels as information, across the room, and releases itself in each different machine: "the aqueous voice flows into three alchemical chambers where inner time is surrendered to the tempi of matter: unbound, yet lucid and sound." One of the machines will bubble furiously to the sound patterns, another will have a phonetic vapor released from its tubes, the other releases an elixir by converting the words into phonemes leaving us in silence. The sounds come out in odd temporal frames, either delayed or sped up by the matter through which they go through. The voice of the participant is restricted by the medium into which the information has been converted to, and due to this transmutation the voice is also submitted to a newly found time which obeys to rules of water and air. 
+
+The video explains it better than I do.  https://vimeo.com/184918640
+
